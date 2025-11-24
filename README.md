@@ -33,8 +33,8 @@
 ---
 
 ## 📫 Connect With Me  
-- GitHub: *your username*  
-- (Add more when you create LinkedIn or portfolio)
+- EMAIL:darshudarshankc8@gmail.com
+- LinkedIn:https://www.linkedin.com/in/darshan-k-c-darshu-464b2935a
 
 ---
 
